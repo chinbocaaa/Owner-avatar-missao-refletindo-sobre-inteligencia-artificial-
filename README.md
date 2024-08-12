@@ -1,0 +1,1 @@
+# Owner-avatar-missao-refletindo-sobre-inteligencia-artificial-
